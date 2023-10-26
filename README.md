@@ -1,5 +1,11 @@
 ### Hi there 👋
+I am attracted by the beauty of programming and having curiosity in many different fields.
 
+Desire to learn more knowledge and strengthen abilities.
+
+I like programming, so I learn it!!
+
+Wish you have a nice day 😁
 <!--
 **YaoyuanHsu/YaoyuanHsu** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
